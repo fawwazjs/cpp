@@ -1,2 +1,2 @@
 # cpp
-Slice of  ̶l̶i̶f̶e̶  study
+Slice of ̷l̷i̷f̷e̷  study
